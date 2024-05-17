@@ -18,12 +18,12 @@ _________
      
 > 1. **Animals/Nature** (especially cats * *meow* * ) =＾● ⋏ ●＾=
 > 2. **Good Food** (the kind of food that warms your heart)
-> 3. **Family** (once I trust... you are part of the Family)    
+> 3. **Family** (once you have my trust... you are part of the Family)    
 
 ### 🏆 Objectives I want to achieve during Becode
 
 > - expand my knowledge 
-> - being capable of creating good code
+> - being able to create good code
 > - possibly find a stage or a work    
 
 ### 🙀 Fears I might have 
@@ -38,7 +38,7 @@ _________
 ### 💪🏼 The 3 things I value the most to work as a team
 
 > 1. experience the real world of work
-> 2. having a constant exchange of information and knowledge
+> 2. having a constant exchange of informations and knowledge
 > 3. mutual help    
 
 <img width= 600 src="https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExaDN0MHhxeG01eW5mNWU2cnAwMWtyeng0M2t4M2hoOW14Y2hzdTh3bSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/MDJ9IbxxvDUQM/giphy.gif">  
